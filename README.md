@@ -1,4 +1,6 @@
-# School-IdeasHere are some ideas to attract more school admissions to your school:
+# School-Ideas
+
+Here are some ideas to attract more school admissions to your school:
 
 Host open houses: Organize events where prospective students and their parents can tour your school, meet with faculty and staff, and learn more about your curriculum and programs.
 
